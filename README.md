@@ -8,5 +8,5 @@ When I’m not diving into data, you'll probably find me playing video games, wa
 
 Let’s connect and build something meaningful!
 
-📄 [**Google Scholar**](https://scholar.google.com/citations?user=YOUR_ID](https://scholar.google.com/citations?hl=en&user=Xz60exkAAAAJ&view_op=list_works&sortby=pubdate)
-🐦 [**Twitter / X**](https://twitter.com/YOUR_HANDLE](https://x.com/Adib_m_)
+-[**Google Scholar**](https://scholar.google.com/citations?hl=en&user=Xz60exkAAAAJ&view_op=list_works&sortby=pubdate)
+-[**Twitter / X**](https://x.com/Adib_m_)
